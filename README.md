@@ -1,4 +1,4 @@
-- 👋 Hi,my name is Akis Gropalis and I'm asoftware engineer.
+- 👋 Hi,my name is Akis Gropalis and I'm a software engineer.
 - 👀 I’m interested in working as a software developer and getting experienced.
 - 📫 How to reach me:konseisao12@gmail.com https://www.linkedin.com/in/άκης-γρόπαλης-899592273/ 
 
